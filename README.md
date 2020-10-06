@@ -1,4 +1,3 @@
-# abhinavgupta
 ### Hey 👋, I'm [abguptam95!](https://github.com/abguptam95)
 
 
